@@ -1,0 +1,3 @@
+Gewaltenteilung ist die Aufteilung der staatlichen Macht in drei getrennte Bereiche: die Legislative (Gesetzgebung), die Exekutive (vollziehende Gewalt/Regierung) und die Judikative (Rechtsprechung). Diese Aufteilung dient dazu, die Macht des Staates zu begrenzen, Machtmissbrauch zu verhindern und die Freiheiten der Bürgerinnen und Bürger zu sichern, indem die drei Gewalten sich gegenseitig kontrollieren.
+
+Es gibt außerdem die vertikale Gewaltenteilung, bei der sich die Macht, im Falle von beispielsweise Deutschland, zwischen dem Bund und den einzelnen Bundesländern aufteilt.

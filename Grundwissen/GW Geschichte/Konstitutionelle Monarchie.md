@@ -1,0 +1,1 @@
+Eine konstitutionelle Monarchie ist im weiteren Sinne eine Monarchie, in der die Macht des Monarchen durch eine Verfassung geregelt und beschränkt wird. Sie steht damit im Gegensatz zur absoluten Monarchie, in der mangels Verfassung die Macht der Monarchen unbeschränkt ist.

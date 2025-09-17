@@ -1,0 +1,3 @@
+Ein Staat ist ein politisches Gebilde mit einer übergeordneten Struktur, die sich aus drei Elementen zusammensetzt: Staatsgebiet, Staatsvolk und Staatsgewalt.
+
+Beispiel: Deutschland, Österreich, Schweiz, ...

@@ -1,0 +1,1 @@
+Ein Parlament ist die direkt oder indirekt gewählte Vertretung des Volkes in einer Demokratie, die die legislative Gewalt ausübt und die Regierung kontrolliert. Seine Kernaufgaben umfassen die Gesetzgebung, das Budgetrecht (Haushaltsbewilligung) und die Kontrolle der Exekutive.

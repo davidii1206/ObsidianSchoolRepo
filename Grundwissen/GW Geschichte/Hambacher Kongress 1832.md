@@ -1,0 +1,3 @@
+Der Hambacher Kongress (oder auch das Hambacher Fest) fand  vom 27. bis 30. Mai 1832 auf dem Hambacher Schloss statt und war eine bedeutende politische Volksversammlung in Detschland. Es galt als Wendepunkt fur die deutsche Demokratiegeschichte, bei der 30.000 Menschen für einen gesamtdeutschen Nationalstaat, Freiheitsrechte, Presse- und Meinungsfreiheit sowie eine demokratische Gesellschaft demonstrieren. 
+
+Der Deutsche Bund reagierte mit verschärften Unterdrückungsmaßnahmen. Einige Teilnehmer der Demonstration wurden aufgrund von "versuchter Aufreizung zum Umsturz der Staatsregierung" vor Gericht gestellt und viele Teilnehmer flohen dabei ins Exil, da sie politische Verfolgung fürchteten.

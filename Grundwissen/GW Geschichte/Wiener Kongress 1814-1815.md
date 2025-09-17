@@ -1,0 +1,3 @@
+Der Wiener Kongress war eine Konferenz europäischer Staaten von 1814 bis 1815, die in Wien stattfand, um Europa nach dem napoleonischen Kriegen weitesgehend wieder herzustellen. Ziel war es die Gegebenheiten vor der revolutionären Ordnung durch die Prinzipien der Restauration, der Legitimität und der Solidarität der Fürsten.
+
+ Daraus resultierte auch die Gründung des [[Deutscher Bund |Deutschen Bundes]], die Neufestlegung europäischer Grenzen und die Schaffung eines Gleichgewichts der Mächte auf dem Kontinent.

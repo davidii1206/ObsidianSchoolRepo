@@ -1,0 +1,1 @@
+Die Verfassung ist die Gesamtheit der Grundsätze, die die Form eines Staates und die Rechte und Pflichten seiner [[Bürger]] festlegt.

@@ -1,0 +1,1 @@
+Ein Bürger ist ein Mensch, der zu einem Staat oder einer Gemeinde gehört und dadurch bestimmte Rechte und Pflichten als Mitglied dieser Gemeinschaft besitzt.
